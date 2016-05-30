@@ -1,6 +1,12 @@
 # web5-blog
 
+Ilinca
 
-Name: Roxana
-Last Name: Bot
+Sebastian
+
+Teo
+
+Bogdan
+
+
 
