@@ -1,3 +1,12 @@
 # web5-blog
 
-My name is Bogdan Tibulca!
+
+
+
+Ilinca 
+
+Sabadus Sebastian
+
+Teo
+
+Bogdan Tibulca
