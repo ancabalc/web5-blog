@@ -1,10 +1,18 @@
 # web5-blog
 
+
 Oana Borza
 
 
+Ilinca
 
-Name: Roxana
-Last Name: Bot
+Sebastian
+
+Teo
+
+Bogdan
+
+
+
 
 
